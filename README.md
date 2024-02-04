@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @FSFTT
+- 👀 I’m interested in filosofy and study
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on anyone computer scientist or programmer
+- 📫 You can to reach me through telegram or instagram
+- 😄 Pronouns: he\his
+- ⚡ Fun fact: I found $10 in the trash can when I was a kid throwing out the garbage.
